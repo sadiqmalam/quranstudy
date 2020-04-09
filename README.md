@@ -16,9 +16,9 @@ This is a project that aims to answer questions from Quran only. The questions t
 
 I am doing a study on understanding the exact meaning of Salaat and Zakat from the Quran.
 
-## Thinkers I admire
+## Thinkers I Admire & Learning from
 
-When it comes to Quranic knowledge, the following thinkers I admire the most and trying to learn from.
+When it comes to Quranic knowledge, the following thinkers I admire the most and trying to learn from. This list is updated on April 2020.
 
 ### Mohammad Toaha bin Habib
 
@@ -31,3 +31,7 @@ When it comes to Quranic knowledge, the following thinkers I admire the most and
 ### Aidid Safar
 
 ### A B Kamal
+
+### Zia Mahmood
+
+### Abu Sayed Khan

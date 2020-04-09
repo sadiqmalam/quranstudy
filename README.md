@@ -10,7 +10,7 @@ At the moment I am engaged in a number of projects.
 
 ### Quran Answer
 
-This is a project that aims to answer questions from Quran only. The questions that are provoked by the Quran itself and answered using Quranic Ayats only. I am putting together respository as I study the Quran and my first attempt is to do it in Bangla and then also have an English version. The project can be found at https://qurananswer.com
+This is a project that aims to answer questions from Quran only. The questions that are provoked by the Quran itself and answered using Quranic Ayats only. I am putting together respository as I study the Quran and my first attempt is to do it in Bangla and then also have an English version. The project can be found at [Answer from the Quran](https://qurananswer.com)
 
 ### Salaat and Zakat
 

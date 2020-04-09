@@ -1,4 +1,4 @@
-![Quran Study Photo](/quran.jpg)
+![Quran Study Photo](/quranbook.jpg)
 
 ## My Interest
 

@@ -1,6 +1,3 @@
-# quranstudy
-A student of the Revealed Communication of God
-
 ![Quran Study Photo](/quranstudy.jpg)
 
 ##My Interest

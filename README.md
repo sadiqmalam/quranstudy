@@ -8,7 +8,7 @@ Due to problematic history of what happend immediately after the passing of the 
 
 ## Projects
 
-At the moment I am engaged in a number of projects.
+At the moment I am engaged in a number of Quran Study related projects.
 
 ### Quran Answer
 
@@ -17,6 +17,10 @@ This is a project that aims to answer questions from Quran only. The questions t
 ### Salaat and Zakat
 
 I am doing a study on understanding the exact meaning of Salaat and Zakat from the Quran.
+
+### Reading Translations
+
+Identifying and reading Quran only or Quran centric translations of the Quran. Among them noteworthy are translation of Sam Gerrans and Shabbir Ahmed MD.
 
 ## Thinkers I Admire & Learning from
 

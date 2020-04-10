@@ -30,6 +30,8 @@ When it comes to Quranic knowledge, the following thinkers I admire the most and
 
 ### Aidid Safar
 
+### Dr. Kashif Khan
+
 ### A B Kamal
 
 ### Zia Mahmood

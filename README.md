@@ -2,7 +2,9 @@
 
 ## My Interest
 
-I am stuent of the Revealed Communication of God. I believe that the highest knowledge in this world is the knowledge of God and that knowledge is revealed in the major Divine Communications revealed to Moses, Jesus and Muhammad. I see Quran as the updated communication stream from God and a Book of God's Self-Disclosure. Only God can know God fully and in the Divinely Revealed Books like Torah, Gospel and Quran, God selectively reveals Himself suitable for human comprehension.
+I am a student of the Revealed Communication of God. I believe that the highest knowledge in this world is the knowledge of God and that knowledge is revealed in the major Divine Communications revealed to Moses, Jesus and Muhammad. I see Quran as the updated communication stream from God and a Book of God's Self-Disclosure. Only God can know God fully and in the Divinely Revealed Books like Torah, Gospel and Quran, God selectively reveals Himself suitable for human comprehension.
+
+Due to problematic history of what happend immediately after the passing of the Prophet, true teachings were hijacked. Hence many important terms of the Qur'an was obscured and replaced with manipulative terms. I feel its important to re-trace the original meaning of terms like Salaat and Zakaat. The highly dubious hadith literature has done maximum damage than benefit. All it did was turned people away from the Qur'an. Hence its important that we do our due diligence as much as we can so that we can uphold the Qur'an and apply it practically in the best of our abilities. We can only do that by uncovering the true meaning of the Qur'an.
 
 ## Projects
 
